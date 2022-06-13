@@ -8,3 +8,7 @@
 **********
 ## **About Me**
 I am well-organized and reliable person)
+**********
+
+## **Languages**
+English B1 (in propgress) 
